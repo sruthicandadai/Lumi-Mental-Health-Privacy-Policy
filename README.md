@@ -1,1 +1,1 @@
-# Lumi-Mental-Health-Privacy-Policy
+# Luminate-Mental-Health-Privacy-Policy
